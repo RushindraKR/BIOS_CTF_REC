@@ -1,2 +1,3 @@
-# BIOS_CTF_REC
-BIOS CTF Recruitment challenge solutions
+RUSHINDRA KR
+BL.EN.U4ECE23140@BL.STUDENTS.AMRITA.EDU
+rushi._.05
